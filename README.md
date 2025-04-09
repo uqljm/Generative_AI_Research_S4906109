@@ -1,1 +1,1 @@
-# Generative_AI_Research_s4906109
+# Generative_AI_Research_S4906109
